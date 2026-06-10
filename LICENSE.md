@@ -1,4 +1,4 @@
-# 
+# Custom pancakeswap trading bot extensions for Mac OS | Secure pancakeswap trading bot extensions for PC Windows. Featuring reversal signals and wallet management — optimized for maximum performance on every platform.
 
 
 
